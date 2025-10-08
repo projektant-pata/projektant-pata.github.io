@@ -1,1 +1,1 @@
-# projektant-pata.github.io
+# projektant-pata.cz
